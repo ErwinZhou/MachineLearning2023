@@ -12,7 +12,7 @@ Feel free to contact me on ErwinZhou@outlook.com
 
 ### 计算机与网络空间安全学院大三
 
-#### 副教授：卫金茂
+#### 教授：卫金茂
 
 任何有改进的内容都可以联系我，
 
